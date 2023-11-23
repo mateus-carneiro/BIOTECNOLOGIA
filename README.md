@@ -1,1 +1,3 @@
 # BIOTECNOLOGIA
+Para obter médias de produtividade acima de três dígitos na soja é preciso adotar uma série de medidas antes mesmo do plantio, entre elas a escolha de uma biotecnologia que proporcione proteção ampliada à soja, atrelando rentabilidade à sustentabilidade. Após semear comercialmente pela primeira vez na safra 2021/22 a terceira geração de soja da Bayer, 41 sojicultores registraram uma média de 105 sacas por hectare com o plantio de variedades com as tecnologias Intacta2 Xtend® e Xtend® Refúgio, reforçando o potencial em solo nacional. Foi um total de 122.069 ha de área plantada com a biotecnologia
+Esta modalidade está direcionada para a produção de alimentos e, por exemplo, faz pesquisas para reduzir os níveis de gorduras saturadas nos óleos de cozinha.
